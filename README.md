@@ -5,8 +5,8 @@
 ![](./profile-3d-contrib/profile-night-rainbow.svg)
 
 ## Profile
-📞 **Email** | oasis0031@gmail.com <br />
-✉ **Phone** | 010-1111-1111
+✉ **Email** | oasis0031@gmail.com <br />
+📞**Phone** | Please contact me on Email
 
 
 
